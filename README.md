@@ -1,6 +1,6 @@
-- [Rentry!](https://rentry.co/fujomikeu) ᐠ( ᐢ ᵕ ᐢ )ᐟ [Atabook!](https://goodboi.atabook.org/)
+# .  ◡ ◡ ◡ ◡ ◡ ◡        [Rentry!](https://rentry.co/fujomikeu) ᐠ( ᐢ ᵕ ᐢ )ᐟ [Atabook!](https://goodboi.atabook.org/) ◡ ◡ ◡ ◡ ◡ ◡
 
 
-  <img width="250" height="250" alt="Image" src="https://github.com/user-attachments/assets/9826b742-9868-45d6-875c-1a1d88fca842" />
+<img width="736" height="521" alt="1000003077" src="https://github.com/user-attachments/assets/0f5cc50a-9801-4e04-97e9-c33993d353fc" />
 
 
