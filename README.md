@@ -1,6 +1,6 @@
 # .  ◡ ◡ ◡ ◡       [Rentry!](https://rentry.co/fujomikeu) ᐠ( ᐢ ᵕ ᐢ )ᐟ [Atabook!](https://goodboi.atabook.org/) ◡ ◡ ◡ ◡ 
 
 
-<img width="735" height="844" alt="1000003399" src="https://github.com/user-attachments/assets/7f15529e-7fcc-47c4-a983-132714cdd6a2" />
+<img width="735" height="818" alt="1000003846" src="https://github.com/user-attachments/assets/f5a85b98-4303-464d-8e96-e911a20a0e9a" />
 
-IDK who they are i just like the designs CREDS : PYANYASHA
+RIBBIT X JAX FOR LIFE!!!!!!
