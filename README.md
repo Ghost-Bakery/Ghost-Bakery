@@ -1,6 +1,4 @@
 # .  ◡ ◡ ◡ ◡       [Rentry!](https://rentry.co/fujomikeu) ᐠ( ᐢ ᵕ ᐢ )ᐟ [Atabook!](https://goodboi.atabook.org/) ◡ ◡ ◡ ◡ 
 
 
-<img width="735" height="818" alt="1000003846" src="https://github.com/user-attachments/assets/f5a85b98-4303-464d-8e96-e911a20a0e9a" />
-
-RIBBIT X JAX FOR LIFE!!!!!!
+<img width="736" height="736" alt="1000003857" src="https://github.com/user-attachments/assets/2572ba84-64ca-4b99-b9b9-f3e5372a838f" />
