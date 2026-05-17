@@ -1,5 +1,5 @@
 <p align=center>
-<img width="835" height="1147" alt="tumblr_a6ad8c6e7f129bc772eff629f6765c0f_3e8e693a_1280" src="https://github.com/user-attachments/assets/9feaf52a-9254-43f4-b0c4-2c5282630467" />
+<img width="736" height="736" alt="1000004176" src="https://github.com/user-attachments/assets/bc8278c9-ae3a-4d72-b0f8-37a256188f11" />
 <p align=center
   <a href="https://hits.sh/GitHub.com/Ghost-Bakery/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/Ghost-Bakery/hits.svg?style=plastic&extraCount=98731&color=a72013&labelColor=000000"/></a>
 
